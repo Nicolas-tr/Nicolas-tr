@@ -1,4 +1,4 @@
-##Nicolas Thiago Rodrigues
+Nicolas Thiago Rodrigues
 Estudante de Análise e Desenvolvimento de Sistemas | Em formação na área de Tecnologia
 Sobre Mim
 
